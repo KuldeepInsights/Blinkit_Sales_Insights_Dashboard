@@ -73,5 +73,5 @@ This dashboard highlights the power of **data-driven decision-making** by provid
 
 Feel free to connect or reach out for any queries or collaborations:
 
-- **LinkedIn**: (https://www.linkedin.com/in/manish-sharma-b86aa1195)  
-- **Email**: [manish.kota2000.com](manish.kota2000.com)
+- **LinkedIn**: (https://www.linkedin.com/in/kuldeepnagar2005/)  
+- **Email**: [kuldeep2005nagar@gmail.com](kuldeep2005nagar@gmail.com)
